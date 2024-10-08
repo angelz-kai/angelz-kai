@@ -17,7 +17,7 @@ i love making new friends *!*
 
 **Special  ( i love you all !) (will mention githubs +links later :3) ;**
 
-*friends*: sam / ryo, cev , cario , kal , aster / ion / nikolai / everything that rat is , sol (hi sol get on pt rn begs and meows) plus all the green names . 
+*friends*: sam / ryo, cev , cario , kal ,  aster / ion / nikolai / everything that rat is , sol (hi sol get on pt rn begs and meows) , vic , plus all the green names . 
 
 
 *family*: zuhrah (I MISS YOU SM.) , aventurine (hi grandpaa ilsymsmsm !!) , aunt emo (hihii emo aunt ^_^) , rae (HI FATHER!!) , aunt mars / yoko (HAIII !!) , vixxen (gay.) , eggs (bro havent told me their name yet) , ian (HI SON) . and all the family idek and havent met.. 
