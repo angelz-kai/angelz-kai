@@ -21,7 +21,7 @@ i love making new friends *!*
 
 
 *family*: zuhrah (I MISS YOU SM.) , aventurine (hi grandpaa ilsymsmsm !!) , aunt emo (hihii emo aunt ^_^) , rae (HI FATHER!!) , aunt mars / yoko (HAIII !!) , vixxen (gay.) , eggs (bro havent told me their name yet) , ian (HI SON) . and all the family idek and havent met.. 
-i love you all, make me feel so happy yet even in bad worse times . <3**
+i love you all, make me feel so happy yet even in bad worse times . <3
 
 
 ***links***:
