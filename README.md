@@ -29,4 +29,4 @@ i love making new friends *!*
  [sign atabook!](https://callmeyourangel.atabook.org/)
 [strawpage](https://lens18tripp.straw.page/)
 [old github account .](https://github.com/freaky-lyney)
-dont ask for some socials because.. they're banned smh (insta , facebook , disc , etc ..)
+
