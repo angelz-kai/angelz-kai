@@ -1,5 +1,8 @@
- **yes this is simple made i'm lazyzyzy.. 
-since my strawpage has info i'll make this basic and about pony town !**
+---
+
+‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![376B23E4-70A6-4EB6-92C7-8D827CEC548D](https://github.com/user-attachments/assets/25be44e4-b2b8-4ae6-b37b-1846b554d69c)
+
+---
 
 hi i'm lennox, len for short though i also go by kai, many know me as len though.
 keep in mind im **14**. dni if your 18+, or iwec. its alright if we already friends *!*
@@ -18,7 +21,8 @@ c+h and interacting is always welcome, as i am quite alone / lonely (sometimes i
 i love making new friends *!*
 
 
-! i love my green names 
+![IMG_5682](https://github.com/user-attachments/assets/45bd3bb3-ea5c-4e36-b086-dbf13b075d6b)
+
 
 ***links***:
 
