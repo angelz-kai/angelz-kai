@@ -21,12 +21,13 @@ c+h and interacting is always welcome, as i am quite alone / lonely (sometimes i
 i love making new friends *!*
 
 
-![IMG_5682](https://github.com/user-attachments/assets/45bd3bb3-ea5c-4e36-b086-dbf13b075d6b)
-
-
 ***links***:
 
  [sign atabook!](https://callmeyourangel.atabook.org/)
 [strawpage](https://lens18tripp.straw.page/)
 [old github account .](https://github.com/freaky-lyney)
+
+
+![IMG_5682](https://github.com/user-attachments/assets/45bd3bb3-ea5c-4e36-b086-dbf13b075d6b)
+
 
